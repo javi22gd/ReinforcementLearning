@@ -5,4 +5,4 @@ October 2022 - January 2023
 
 By Javier Gomez
 
-Grade: **ongoing**
+Grade: **A (9.9)**
